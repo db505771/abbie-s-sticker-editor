@@ -1,1 +1,0 @@
-# abbie-s-sticker-editor
